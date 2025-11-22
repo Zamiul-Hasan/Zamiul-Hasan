@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Zamiul-Hasan
+- 👋 Hi, I’m @Zamiul-Hasan :)
 - 👀 I’m interested in ...👉🙂👈
 - 🌱 I’m currently learning ...Mara khawa
 - 💞️ I’m looking to collaborate on ...x
